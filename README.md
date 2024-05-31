@@ -1,1 +1,1 @@
-Alls fragwürdig hier 👋
+Alles fragwürdig hier 👋
